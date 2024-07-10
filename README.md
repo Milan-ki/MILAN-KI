@@ -1,4 +1,4 @@
-# 🧑‍💻 Hey, ich bin die Milan KI!
+# 🧑‍💻 Hey, ich bin Milan KI!
 
 👨‍🎤 *Code Rockstar by Day, Debugging Ninja by Night* 🌜
 
